@@ -1,6 +1,8 @@
 # Hello visitor 👋
 
-![Anurag's github stats](https://github-readme-stats.vercel.app/api?username=unpeekabl3&show_icons=true&theme=radical)
+```
+🎵 currently playing: RØNIN - ALL GIRLS ARE THE SAME
+```
 
 - 🔭 I’m currently working on Durak Online Api
 
