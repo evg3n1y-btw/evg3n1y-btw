@@ -1,5 +1,3 @@
-# Hello visitor 👋
-
 ```
 🎵 currently playing: RØNIN - ALL GIRLS ARE THE SAME
 ```
