@@ -2,7 +2,7 @@
 🎵 currently playing: RØNIN - ALL GIRLS ARE THE SAME
 ```
 
-- 🔭 I’m currently working on Durak Online Api
+- 🔭 I’m currently working on Discord Spammers
 
 - 📫 How to reach me: Telegram - @unpeekabl3
 
