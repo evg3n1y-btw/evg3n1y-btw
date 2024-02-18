@@ -1,1 +1,1 @@
-🎵 currently playing: SLAVA MARLOW - запретить
+🎵 currently playing: zhanulka - портреты - Acoustic
