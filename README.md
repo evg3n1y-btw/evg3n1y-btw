@@ -1,4 +1,4 @@
-```🎵 currently playing: LXST CXNTURY - ODIUM
+```🎵 currently playing: Kordhell - Wig Split
 
 🚀 Welcome to my coding universe! 🌌
 
