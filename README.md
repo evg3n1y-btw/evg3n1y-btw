@@ -1,1 +1,1 @@
-🎵 currently playing: Ой, Мама
+🎵 currently playing: Старшие (feat. Polyana)
