@@ -1,1 +1,1 @@
-🎵 currently playing: OG Buda - Старшие (feat. Polyana)
+🎵 currently playing: нексюша - Лето18
