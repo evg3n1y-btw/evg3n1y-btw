@@ -1,4 +1,4 @@
-🎵 currently playing: LXST CXNTURY - DESTINY
+🎵 currently playing: LXST CXNTURY - COLLAR
 
 🚀 Welcome to my coding universe! 🌌
 
