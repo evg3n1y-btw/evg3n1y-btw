@@ -1,1 +1,1 @@
-🎵 currently playing: FrozenGangBeatz - Запятые
+🎵 currently playing: LSP - Тело
