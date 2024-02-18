@@ -1,1 +1,1 @@
-🎵 currently playing: Выходи
+🎵 currently playing: Бигасс
