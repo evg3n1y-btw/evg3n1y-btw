@@ -1,5 +1,5 @@
 ```
-🎵 currently playing: RØNIN - ALL GIRLS ARE THE SAME
+🎵 currently playing:🎵 currently playing: New song title
 ```
 
 - 🔭 I’m currently working on [ADV Project](https://advvproject.com)
