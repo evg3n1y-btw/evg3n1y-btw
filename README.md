@@ -1,4 +1,4 @@
-🎵 currently playing: LXST CXNTURY - COLLAR
+🎵 currently playing: LXST CXNTURY - MELANCHOLIA
 
 🚀 Welcome to my coding universe! 🌌
 
