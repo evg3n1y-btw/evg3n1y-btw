@@ -1,4 +1,4 @@
-```🎵 currently playing: Kordhell - Wig Split
+🎵 currently playing: Kordhell - Wig Split
 
 🚀 Welcome to my coding universe! 🌌
 
