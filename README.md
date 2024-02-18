@@ -1,1 +1,1 @@
-🎵 currently playing: Старшие (feat. Polyana)
+🎵 currently playing: OG Buda - Старшие (feat. Polyana)
