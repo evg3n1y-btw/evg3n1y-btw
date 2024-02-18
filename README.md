@@ -1,4 +1,4 @@
-```🎵 currently playing: LSP - Тело```
+```🎵 currently playing: LXST CXNTURY - ODIUM
 
 🚀 Welcome to my coding universe! 🌌
 
